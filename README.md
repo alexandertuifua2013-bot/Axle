@@ -1,0 +1,1 @@
+I want to make an app where you can chat to Ai charters but with no restrictions to age or photos or anything about that and no ads I want it able to create your own charters or a charter group chat like maximum 100 I want it to look like poly buzz and saylo Ai chat but everything has no ads
